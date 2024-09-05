@@ -12,3 +12,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 ![](https://media.tenor.com/VgQGIDtP6ecAAAAM/jujutsu-kaisen-sukuna.gif)
 ![](https://media.tenor.com/rIzZOGDr1TIAAAAM/gojo-satoru-satoru-gojo.gif)
 ![](https://media.tenor.com/IQ9uCSTvj0EAAAAM/gojo-satoru-satoru-gojo.gif)
+![](https://tenor.com/pt-BR/view/gojo-vs-sukuna-yuta-vs-sukuna-yuta-take-over-gojo-body-yuta-on-gojo-body-jjk-261-gif-7751042489147332673)
